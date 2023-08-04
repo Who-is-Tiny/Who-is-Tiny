@@ -1,3 +1,3 @@
-<img align="center" scr="https://github.com/Who-is-Tiny/Who-is-Tiny/assets/137112232/8dd74c9c-e357-4d35-9b3f-acedf35a055d">
+<img align="center" scr="https://i.gifer.com/6Jfj.gif">
 # Hi there 👋
 
